@@ -1,8 +1,8 @@
 ## Hi there, I'm Giulia 👋
 
-+ 🎓 Graduated with a Bachelor in Computer Engineering from the University of Florence
++ 👩‍🎓 Graduated with a Bachelor in Computer Engineering from the University of Florence
 
-+ 👩‍💻 Attending the Master degree in Computer Science and Engineering at the Politenico of Milan
++ 👩‍💻 Attending the Master degree in Computer Science and Engineering at the Politenico of Milan 
 
 
 ### About me 👧
