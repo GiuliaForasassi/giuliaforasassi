@@ -1,11 +1,11 @@
-### Hi there, I'm Giulia 👋
+## Hi there, I'm Giulia 👋
 
 + 🎓 Graduated with a Bachelor in Computer Engineering from the University of Florence
 
 + 👩‍💻 Attending the Master degree in Computer Science and Engineering at the Politenico of Milan
 
 
-## About me 👧
+### About me 👧
 
 + 🏡 I'm from Florence (Tuscany), but now I'm based in Como 
 
