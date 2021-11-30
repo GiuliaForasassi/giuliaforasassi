@@ -1,16 +1,20 @@
-### Hi there 👋
+### Hi there, I'm Giulia 👋
 
-<!--
-**GiuliaForasassi/giuliaforasassi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
++ 🎓 Graduated with a Bachelor in Computer Engineering from the University of Florence
 
-Here are some ideas to get you started:
++ 👩‍💻 Attending the Master degree in Computer Science and Engineering at the Politenico of Milan
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+## About me 👧
+
++ 🏡 I'm from Florence (Tuscany), but now I'm based in Como 
+
++ 👩‍❤️‍💋‍👨 I'm in love with @fedem96, and yes I put up with him every day - don't ask how!
+
++ 🐱 I love cats, especially my kitten Merlino
+
++ 💻 Every time I go to Mediaworld I would like to buy a new PC
+
++ 🎥 Series tv addicted
+
++ 🧘‍♀️ Less is more
