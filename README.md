@@ -9,7 +9,7 @@
 
 + 🏡 I'm from Florence (Tuscany), but now I'm based in Como 
 
-+ 👩‍❤️‍💋‍👨 I'm in love with @fedem96, and yes I put up with him every day - don't ask how!
++ 👩‍❤️‍💋‍👨 I'm in love with [@fedem96](https://github.com/fedem96), and yes I put up with him every day - don't ask how!
 
 + 🐱 I love cats, especially my kitten Merlino
 
