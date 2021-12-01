@@ -15,6 +15,6 @@
 
 + 💻 Every time I go to Mediaworld I would like to buy a new PC
 
-+ 🎥 Series tv addicted
++ 🎥 Series tv addicted - NCIS is my all time favourite
 
 + 🧘‍♀️ Less is more
