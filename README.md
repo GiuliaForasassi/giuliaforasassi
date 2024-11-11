@@ -15,6 +15,8 @@
 
 + 💻 Every time I go to Mediaworld I would like to buy a new PC
 
++ 🎮 I love playing video games and board games
+
 + 🎥 TV series addicted - NCIS and The Mentalist are my all-time favorites
 
 + 🧘‍♀️ Less is more
