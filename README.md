@@ -15,6 +15,6 @@
 
 + 💻 Every time I go to Mediaworld I would like to buy a new PC
 
-+ 🎥 TV series addicted - NCIS and The Mentalis are my all-time favorites
++ 🎥 TV series addicted - NCIS and The Mentalist are my all-time favorites
 
 + 🧘‍♀️ Less is more
